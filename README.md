@@ -1,1 +1,1 @@
-# Slungile03.github.io
+# Projects.github.io
